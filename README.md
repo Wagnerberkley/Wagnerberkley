@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Berkley
+- 👀 I’m interested in Swiming im on a swim team, I am also am interedted in collecting things like coins.
+- 🌱 I’m currently learning lots of things
+- 💞️ I’m looking to collaborate on really anything
+- 📫 How to reach me give me an email!! Wagnerberkley40@gmail.com
